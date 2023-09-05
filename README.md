@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello everyone, My name is ZhongZhiJie, you can also call me kenny. Nice to meet you! 👋
 
 <!--
 **Z-Times/Z-Times** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
